@@ -1,4 +1,4 @@
-![](https://miro.medium.com/max/1200/1*66-VRoh7ffbDP2HxPemJOA.png)
+![](https://miro.medium.com/max/1200/1*66-VRoh7ffbDP2HxPemJOA.png){width=640 height=640}
 
 **Привет!** 
 
